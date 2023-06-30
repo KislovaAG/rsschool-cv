@@ -1,1 +1,1 @@
-# rsschool-cv
+https://KislovaAG.github.io/rsschool-cv/cv
